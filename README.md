@@ -1,1 +1,1 @@
-Just an idiot which cant code
+Just an idiot who can't code
